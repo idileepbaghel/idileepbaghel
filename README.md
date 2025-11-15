@@ -1,5 +1,5 @@
 # 💫 About Me:
-LearnTrail<br>Software Projects<br>With my Technical skills<br>About Better Life<br>Anything
+I'm Currently working @LearnTrail<br>Looking for help With my Technical skills<br>Exploring About being Better in Life<br>Ask me about<br>Anything
 
 
 ## 🌐 Socials:
